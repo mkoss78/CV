@@ -1,4 +1,4 @@
-# Nicolas "Mkoss" MACA
+# Nicolas "Mkoss"
 
 ##Expérience professionnelle
 
